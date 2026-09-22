@@ -2,6 +2,6 @@
 
 ## Ingredients
 
-- Bread
+- Rye bread
 - Cheese
 - Butter
